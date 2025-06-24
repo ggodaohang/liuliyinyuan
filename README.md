@@ -2,7 +2,7 @@
 <p>琉璃影院是一款专注于提供高清影视资源的在线播放平台，致力于为用户提供便捷、舒适的观影体验。该网站汇集了海量的影视资源，包括最新电影、电视剧、综艺、纪录片等，满足不同用户的多样化需求。无论是好莱坞大片还是国产精品剧集，用户都能在这里找到心仪的内容。此外，琉璃影院每日更新，确保用户能够观看到最新的影视作品。</p>
 <p>琉璃影院的界面设计简洁清晰，操作简便，适合各种用户使用。其无广告弹窗的设计不仅提升了用户的观看体验，还节省了时间，使用户能够专注于影片本身。同时，该平台支持多种视频质量选择，包括高清、超清甚至4K画质，让用户根据自己的需求自由切换。</p>
 <p><strong>一键访问：</strong><a href="https://www.ggonav.com/sites/5831.html" target="_blank"><strong>琉璃影院最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
 <ol>
